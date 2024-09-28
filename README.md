@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tharushi102
-- 👀 I’m currently interested in game developing
+- 👀 I’m currently interested
 - 🌱 I’m currently learning at Sabaragamuwa university of Sri Lanka
-- 💞️ I’m looking to collaborate on game developing
+- 💞️ I’m looking to collaborate
 - 📫 You can reach me using tharushimdevindi@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
